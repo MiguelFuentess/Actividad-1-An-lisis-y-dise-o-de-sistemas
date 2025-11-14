@@ -1,1 +1,0 @@
-# Actividad-1-An-lisis-y-dise-o-de-sistemas
